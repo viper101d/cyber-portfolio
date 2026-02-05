@@ -1,0 +1,6 @@
+# 🛡️ [williams]'s Cybersecurity Portfolio btw im 15
+HELLO AND WELCOME :)
+
+Im passionate about cybersecurity tech pc building and learning any thing new about the world of teck.
+In this repo it will include my skills and projects and quick briefs of tools ive used. 
+
